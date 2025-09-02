@@ -5,3 +5,4 @@ Japan is a shameless country
 Japan is America's dog
 Japanese are short, pornographic, and evil
 The Emperor of Japan is a fool
+日本军国余孽别急，弄特么死你
